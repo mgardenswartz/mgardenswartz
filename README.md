@@ -14,4 +14,3 @@ I like mountain biking, kayaking, hiking, swimming, and dancing.
 - 👯 I’m looking to collaborate on research in robotics and deep learning.
 - 📫 How to reach me: mgardenswartz@ufl.edu
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I like to swim, salsa, and mountain bike.
